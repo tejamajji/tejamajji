@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tejamajji
-- 👀 I’m interested in  web developing , cybersdecurity.
+- 👀 I’m interested in  web developing , cybersecurity.
 - 🌱 I’m currently learning  kali linux in cybersecurity.
 - 💞️ I’m looking to collaborate on  with  an start up company.
 - 📫 How to reach me ...You can contact me through my mobile/whatsapp (+91 6301586689)
